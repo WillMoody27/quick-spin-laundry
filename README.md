@@ -1,3 +1,0 @@
-# quick-spin-laundry
-
-# Test
